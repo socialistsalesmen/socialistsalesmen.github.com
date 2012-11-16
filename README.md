@@ -1,2 +1,0 @@
-socialistsalesmen.github.com
-============================
